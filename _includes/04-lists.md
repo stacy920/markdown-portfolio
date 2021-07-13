@@ -1,1 +1,2 @@
-Replace this with a list of your favorite things.
+1. Prepare japanese language proficiency test
+2. Prepare TOELF
